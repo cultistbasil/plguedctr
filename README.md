@@ -29,12 +29,11 @@
 
 '' ɪ ᴄᴀɴ'ᴛ ᴡᴀɪᴛ ᴛᴏ ɢᴇᴛ ᴏᴜᴛ ᴏꜰ ᴛʜɪs ᴘʀɪsᴏɴ ! ᴛʜᴇʀᴇ ᴀʀᴇ sᴏ ᴍᴀɴʏ ɢᴀᴍᴇꜱ ɪ ᴡᴀɴɴᴀ ᴘʟᴀʏ ! ɪꜰ ᴡᴇ ɴᴇᴇᴅ ᴀ ᴛʜɪʀᴅ ᴘʟᴀʏᴇʀ , ᴡᴇ ᴄᴀɴ ᴍᴀᴋᴇ ᴀɴᴏᴛʜᴇʀ ɢʀɪᴍᴡᴀʟᴋᴇʀ ! ''
 
-ᴋɴᴏᴡɴ ɪʀʟꜱ :
+_**LUCIFER SYSTEM**_
 
-- ʜᴀɴsᴇʟ ( ꜰʀᴏᴍ ꜱᴏᴅɪᴋᴋᴇɴ )
-- ᴅᴀʀᴇ ( ʜʏᴇɴᴀ )
-- ʟᴏʟʙɪᴛ ( ꜰɴᴀꜰ )
-- sᴄᴏᴜᴛ ( ꜰɪᴄᴛɪᴠᴇ )
+_Host(s) : Lucifer/Yami , Hansel_
+_Fictives : Lolbit ( Source : FNaF ) , Duck ( Source : DHMIS ) _
+_Alters : Dare , Voidcat , Shiroi , Oliver _
 
 
 ↤ ↤ ↤ ↤ ↤ ~ ↦ ↦ ↦ ↦ ↦
