@@ -32,7 +32,9 @@
 _**LUCIFER SYSTEM**_
 
 _Host(s) : Lucifer/Yami , Hansel_
+
 _Fictives : Lolbit ( Source : FNaF ) , Duck ( Source : DHMIS ) _
+
 _Alters : Dare , Voidcat , Shiroi , Oliver _
 
 
